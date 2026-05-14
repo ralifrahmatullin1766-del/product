@@ -1,1 +1,1 @@
-Assalamu aleykum
+Assalamu aleykum ua rahmatullahi 
